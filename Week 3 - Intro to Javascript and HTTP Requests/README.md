@@ -8,7 +8,7 @@ scratch!
 * About them: An umbrella organization of international relations 
 organizations on campus. 
 * I'm going to be setting up 1:1 meetings with each of you over boba
-or a snack of your choice this week or next week. :) 
+or a snack of your choice this week or next week. :smiley:
 
 ## Warm-Up
 * They want:
